@@ -440,6 +440,26 @@ embrace such diversity
 diversity it's what allows us to survive i a changing universe
 
 
+
+Our enemies are the othermost others, those further from the reach of our compassion.
+
+I have to ask myself: "what would make me act like that enemy of mine?"
+If that answer makes me smug or belittles the person, I am doing it wrong.
+If that answer gives me peace and insight in the human condition, chances are that it's a good answer.
+
+Loving is hard. Loving my enemies it's hardest; I may not succeed, but it is where I want to put my effort.
+It is not something i can do immediately but it is something i can do. Part of me rejects the idea.
+
+Many times I won't be able to do it right, because human nature can be an ugly beast.
+But awareness of what you do wrong is the first step to do it right.
+
+
+
+
+
+
+
+
 =======================================================
 TOWARDS THE PROPHET / TOWARDS DEATH
 
@@ -555,3 +575,6 @@ So listen to me, 'cause I know better...
 
 
 
+
+If the Covenant is not clearly consistent, then the Covenant is wrong and must be amended
+Humans -> the good? The compassionate?
