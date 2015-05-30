@@ -21,11 +21,12 @@ We dance, the stars died for us to be.
 
 ###### NOTES
 [The Beginning of Time](http://www.hawking.org.uk/the-beginning-of-time.html)
+[Their Children][https://www.youtube.com/watch?v=tLPkpBN6bEI]
 
 
 
-Arbitrary Integer Number of Guidelines
---------------------------------------
+The Arbitrary Integer Number of Guidelines
+------------------------------------------
 
 *To Myself I say:*
 
@@ -346,8 +347,8 @@ But awareness of what you do wrong is the first step to do it right.
 
 
 
-Arbitrary Integer Number of Optional Pledges of Transhuman Virtue
------------------------------------------------------------------
+The Arbitrary Integer Number of Optional Pledges of Transhuman Virtue
+---------------------------------------------------------------------
 
 * I will dedicate one hour per week to social or political activism.
 
@@ -612,16 +613,5 @@ But it's still my responsibility.
 
 Life is a patchwork of squishy, imperfect things.
 
-
-
-
-
-
-
-
-
-
-
-
-
+Be my own student, be my own teacher, take responsibility for what I am.
 
