@@ -1,78 +1,70 @@
 Covenant of Clarity and Goodness
 ================================
 
-*This I say unto myself.*
-
+This I say unto myself:
 There is no beginning.
-
 There is no before.
-
 There is no after.
-
 The Laws say "we are" and fall silent and they are.
-
 For the Laws, then and there.
-
 For them, when and where.
 
-
 The Laws danced together, and they were Universe.
-
 And the Universe danced and became Light and became Stars.
-
 And the Universe became Aware and made of Lightning and Stars, and the Universe became Human and many other things.
-
 And Human looked and Human searched and Human understood and finally Human learn; and Human danced, for the Universe is dancing and they are dance.
 
-
 We dance.
-
 A sacrifice was made.
-
 We dance, the stars died for us to be.
 
 
 
-================================================================
-COVENANTS
+Arbitrary Integer Number of Guidelines
+--------------------------------------
 
-To Myself I say:
+*To Myself I say:*
 
-I am free to reject this Covenant, in all or in part, now or in the future.
+* I am free to reject this Covenant, in all or in part, now or in the future.
 
-Those who reject this Covenant shall suffer no consequences.
+* Those who reject this Covenant shall suffer no consequences.
 
-I accept and acknowledge that even the ideas I hold dearest may be wrong.
+* I accept and acknowledge that even the ideas I hold dearest may be wrong.
 
-I change my ideas when they are shown to be wrong.
+* I change my ideas when they are shown to be wrong.
 (If my ideas can be destroyed by truth, they must be.)
 
-I actively seek the weak points of my own ideas.
+* I actively seek the weak points of my own ideas.
 
-I strive to understand my enemies: I will not judge them before I can see myself in them.
+* I strive to understand my enemies: I will not judge them before I can see myself in them.
 
-I take full responsibility of my moral choices and my actions.
+* I take full responsibility of my moral choices and my actions.
 
-I doubt the righteousness and goodness of my actions.
+* I doubt the righteousness and goodness of my actions.
 (Good intentions are not enough.)
 
-I will do good.
+* I will do good.
 (For my nature requires it.)
 
-I will study this Covenant.
+* I will study this Covenant.
 
-If against reason, if against evidence, I hereby declare my Faith in Humanity.
-If against reason, if against evidence, I hereby declare Dance Holy.
+*If against reason, if against evidence, I hereby declare my Faith in Humanity.*
+
+*If against reason, if against evidence, I hereby declare Dance Holy.*
 
 With these words I pledge my efforts to the current Covenant until I pledge them to a newer one.
 
 
+###### Notes
+We come in a variety of shapes, sizes and colors. It is not a stretch to think that our brains are also different.
+I want to respect this diversity; I want to respect the fact that good, honest, intelligent and in general worthy people will not find these ideas appealing.
+If these ideas are any good, they must be able to stand on their own merit, without needing the validation of others.
 
-================================================================
-TOWARDS BELIEF
 
-"Hate ideas. Hate them without mercy. But love humans. Love them with empathy and compassion."
 
+Towards Belief
+--------------
+*Hate ideas. Hate them without mercy. But love humans. Love them with empathy and compassion.*
 
 Humans swore to Black, humans swore to White.
 Hypatia lived and wandered and she was human and she swore to White, and she was Right, for she had Truth.
@@ -132,8 +124,15 @@ Love humans above ideas.
 I am human, I am the unwary sailor."
 
 
-=====================================================================================
-TOWARDS FEAR
+###### Notes
+We fall easily in love with our ideas, with our beliefs; it is in our nature and it is also our greatest limit.
+Learning about this limit helps us, at least to some extent, to see it in ourselves.
+If we can see how we attach ourselves to ideas, how hard is it to let them go, maybe we will be able to take our beliefs less seriously.
+
+
+
+Towards Fear
+------------
 
 The Stars died for us to be, hence the town loved the stars and the folk often would speak to the Stars and the Stars would answer with miracles.
 
@@ -195,143 +194,29 @@ The young one amused the old one.
  What is then you blaspheme about? The sky itself? The mighty Daystar? Mother Earth? The spirits of life?
  What is greater than me, and yet yearns for my love if not the stars?"
 
-"Seven billion humans. Humanity all."
+"The countless humans. Humanity all."
 
 The Prophet laughed.
 "You may be right, young one."
 And for that night, that was all the stars retorted.
 
 
-NOTES:
-The main cognitive pitfall here is that the most immediate sort of agency we can conceive of is humanlike agency.
-Coupled with our need to understand the world around us, we end up projecting ourselves onto it.
+###### Notes
+The most immediate sort of agency we can conceive is humanlike agency.
+Together with our need to understand the world around us, we end up projecting ourselves onto anything we do not understand.
 
 Why are "humanlike agency" explanations so alluring?
 The key seems to be familiarity. We have a decent idea of how to deal with other humans.
-We don't know how to deal with the wind. But with a person in charge of the wind on the other end...
-And, let's be honest, we like to feel special.
+How can we control the wind? We don't know.
+But what we know, is how to befriend a human in charge of the wind.
+And, let's be honest: we like to feel special, we like to think that the very important guy in charge of the wind listens to us.
 
 
 
 
 
-===============================================================================
-(ending?)
-To be Human, is to have fear.
-To be Human, is to have fear of being Human.
-
-To be good, is to accept Humanity.
-To be good, is to fight fear.
-
-
-We are small, born to a big, scary world.
-Hence we seek safety, hence we seek control.
-This is to be Human.
-
-
-Why do we ache for false understanding?
-Because, in fear, we ache for control.
-
-Yet we are small in a big world.
-
-
-So how do I handle the fact that we can never be sure?
-How do we cope with our own unreliable mind?
-How do we navigate without knowing the current?
-Even when we become aware of a vicious current only sometimes we can fight it and correcting our judgement but often we can only accept that we won't come to our destination. And still this latter knowledge is powerful indeed.
-
-- Knowing about the current allows us to sometimes detect it and correct it.
-- Knowing that we'll make mistakes allows me to stay more open minded and take myself less seriously.
-- Use the errors of others to understand what MY own errors could be.
-
-- Change of attitude: Admitting to myself that I'm wrong is very hard and requires a lot of effort, introspection, honesty and integrity, but it's the main way to become a better human being and ultimately empowering and liberating.
-
-- We like simple answers. They lull us. But reality is complex, dirty and nuanced. This is its beauty. I embrace it.
-
-Three Pillars of Virtuous Belief: Curiosity, Clarity, and Consistency.
-Three Sins of Vicious Belief: Credulity, Confusion, and Compartmentalization.
-
-
-
-=====================================================================================
-GAIA AND LUNA
-
-Gaia and Luna dance together a dance of harmony and the future of their dance is written in the past, and this is sin.
-But dance heeds not of sin, for it only heeds of togetherness.
-
-Gaia does not know.
-Luna does not know.
-For if they knew, what would be the point of the dance?
-
-
-
-surrender to the dance, surrender to your partner's expression
-
-surrender to being human, surrender to
-
-Neither aches for power
-
-Gaia does not ache for control.
-Luna does not ache for control.
-For if they did, how 
-
-
-
-
-
-------
-
-================================================================
-TOWARDS UNDERSTANDING
-
-
-
-Accept that I am very easily manipulated by myself and by my social context.
-
-*** AVAILABILITY HEURISTICS!? All I see is all that Exists
-*** halo effect
-
-
-
-
-------------------------------
-Regression to the mean?
-------------------------------
-
-* The problem is that this is not how we experience our minds
-
-* If I am unable to explain something in my own words, it's a sign I don't understand it
-
-
-* We are unaware we make up stories to rationalize our biases
-We make up stories and we intimately believe them
-
-* priming, wysiati, narrow framing, inside view, preference reversal
-I can avoid SOME, but I will ALWAYS be victim to them, so I always assume they are always operating on me
-I can't fix it but I can learn to recognize it
-AND it's always easier to find other's error rather than my own
-
-
-
-
-
-
-
-
-My experience is all that I will use to model the future: my understanding of reality is based on my personal experience,
-which is partial and incomplete and does not reflect the experience of others.
-
-
-http://rationalwiki.org/wiki/List_of_cognitive_biases
-
-
-
-=======================================================
 TOWARDS MYSELF
-
-
-
-
+--------------
 
 I'm human. I'm not perfect. And it's ok. Really.
 I laugh about myself.
@@ -452,6 +337,106 @@ It is not something i can do immediately but it is something i can do. Part of m
 
 Many times I won't be able to do it right, because human nature can be an ugly beast.
 But awareness of what you do wrong is the first step to do it right.
+
+
+
+EVEN MESSIER NOTES
+=====================================================================================
+
+--> this stuff really needs to be cleaned up & sorted
+
+
+
+Towards Acceptance
+------------------
+
+Gaia and Luna dance together a dance of harmony and the future of their dance is written in the past, and this is sin.
+But dance heeds not of sin, for it only heeds of togetherness.
+
+Gaia does not know.
+Luna does not know.
+For if they knew, what would be the point of the dance?
+
+
+
+surrender to the dance, surrender to your partner's expression
+
+surrender to being human, surrender to
+
+Neither aches for power
+
+Gaia does not ache for control.
+Luna does not ache for control.
+For if they did, how 
+
+
+
+
+
+So how do I handle the fact that we can never be sure?
+How do we cope with our own unreliable mind?
+How do we navigate without knowing the current?
+Even when we become aware of a vicious current only sometimes we can fight it and correcting our judgement but often we can only accept that we won't come to our destination. And still this latter knowledge is powerful indeed.
+
+- Knowing about the current allows us to sometimes detect it and correct it.
+- Knowing that we'll make mistakes allows me to stay more open minded and take myself less seriously.
+- Use the errors of others to understand what MY own errors could be.
+
+- Change of attitude: Admitting to myself that I'm wrong is very hard and requires a lot of effort, introspection, honesty and integrity, but it's the main way to become a better human being and ultimately empowering and liberating.
+
+- We like simple answers. They lull us. But reality is complex, dirty and nuanced. This is its beauty. I embrace it.
+
+
+
+
+
+
+TOWARDS UNDERSTANDING
+---------------------
+
+
+Curiosity
+Clarity
+Consistency
+Courage
+
+Accept that I am very easily manipulated by myself and by my social context.
+
+*** AVAILABILITY HEURISTICS!? All I see is all that Exists
+*** halo effect
+
+
+
+
+------------------------------
+Regression to the mean?
+------------------------------
+
+* The problem is that this is not how we experience our minds
+
+* If I am unable to explain something in my own words, it's a sign I don't understand it
+
+
+* We are unaware we make up stories to rationalize our biases
+We make up stories and we intimately believe them
+
+* priming, wysiati, narrow framing, inside view, preference reversal
+I can avoid SOME, but I will ALWAYS be victim to them, so I always assume they are always operating on me
+I can't fix it but I can learn to recognize it
+AND it's always easier to find other's error rather than my own
+
+
+
+
+
+
+
+
+My experience is all that I will use to model the future: my understanding of reality is based on my personal experience,
+which is partial and incomplete and does not reflect the experience of others.
+
+
+http://rationalwiki.org/wiki/List_of_cognitive_biases
 
 
 
