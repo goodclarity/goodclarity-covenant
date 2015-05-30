@@ -19,6 +19,10 @@ A sacrifice was made.
 We dance, the stars died for us to be.
 
 
+###### NOTES
+[The Beginning of Time](http://www.hawking.org.uk/the-beginning-of-time.html)
+
+
 
 Arbitrary Integer Number of Guidelines
 --------------------------------------
@@ -340,6 +344,25 @@ But awareness of what you do wrong is the first step to do it right.
 
 
 
+
+
+Arbitrary Integer Number of Optional Pledges of Transhuman Virtue
+-----------------------------------------------------------------
+
+* I will dedicate one hour per week to social or political activism.
+
+* I will dedicate one hour per week to the practice of dancing, mindfulness or another meditation technique.
+
+* I will read one random encyclopedia article per week.
+
+* I will eat other animals no more than once per week.
+
+* I will keep my money with institutions that will use it ethically.
+
+
+
+
+
 EVEN MESSIER NOTES
 =====================================================================================
 
@@ -563,3 +586,42 @@ So listen to me, 'cause I know better...
 
 If the Covenant is not clearly consistent, then the Covenant is wrong and must be amended
 Humans -> the good? The compassionate?
+
+
+Dancing is a celebration of the complexity of the Universe and how intimate connection with it.
+
+
+
+
+
+
+We are not good at spotting our own errors. So be skeptical, but be humble.
+No matter how often I find myself factually wrong, it doesn't seem to make me much humble, so I have to be extra careful.
+I *know* I have been wring heaps of times in the past
+
+
+
+I make mistakes.
+I avoid responsibilities.
+I make excuses.
+
+This is human.
+It's not good or bad, it's just how things are.
+But it's still my responsibility.
+
+
+Life is a patchwork of squishy, imperfect things.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
