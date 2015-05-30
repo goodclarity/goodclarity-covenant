@@ -21,7 +21,8 @@ We dance, the stars died for us to be.
 
 ###### NOTES
 [The Beginning of Time](http://www.hawking.org.uk/the-beginning-of-time.html)
-[Their Children][https://www.youtube.com/watch?v=tLPkpBN6bEI]
+
+[Their Children](https://www.youtube.com/watch?v=tLPkpBN6bEI)
 
 
 
