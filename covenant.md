@@ -615,4 +615,46 @@ But it's still my responsibility.
 Life is a patchwork of squishy, imperfect things.
 
 Be my own student, be my own teacher, take responsibility for what I am.
+=================================================================
+
+Dance is beyond comprehension
+
+Humans are Universe looking at itself
+
+
+transhuman pledges:
+- bicycle!
+
+
+- How do I see when I am wrong? How do I feel?
+This is probably the most difficult thing.
+There is only one way to be sure that you are monitoring yourself effectively: you acknowledge that you are wrong about something that you are emotionally invested to, you acknowledge that you are wrong about something you have been defending.
+
+
+Towards ignorance
+
+I have the right to be ignorant 
+I do not have the right to have an ignorant opinion
+
+There are to many, too complex things to know, and we have limited time and resources, and they wildly vary with our life circumstances.
+Even the best of is can master only a handful of topics.
+But we have to be aware of this limit, and be humble enough to recognise this depth and complexity, when our opinions are not founded in solid understanding.
+
+
+
+My understanding and my opinions are my responsibility, and mine only.
+
+
+
+----
+
+the Goodclaritan Astrology
+
+-----
+
+
+
+Seriously, at the risk of running into Blue And Orange Morality: it is wrong to be proud of being right; it is evil to be incapable of acknowledging an error and changing one’s mind in the middle of a discussion. Be proud of the methods that have let you be right, but not of the happenstances that were also necessary for that.
+
+
 
