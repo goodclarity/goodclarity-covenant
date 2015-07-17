@@ -39,6 +39,15 @@ But, most importantly, nothing less.
 
 
 
+Towards Faith
+-------------
+Faith must be reposed in humanity, for little (albeit significant) compassion exists out of humanity.
+Faith is to be acknowledged as Faith, that is, with its strength and weaknesses.
+A strength is its subjectiveness, a weakness is its lack of objectiveness.
+Belief without reason can be accepted as long as there is no pretense of rationality, and as long as human fallibility is provisioned for.
+
+
+
 The Arbitrary Integer Number of Guidelines
 ------------------------------------------
 

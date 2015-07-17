@@ -4,6 +4,7 @@ Goodclarity Covenant
 
 I guess you can think of this as the Holy text of the Goodclaritan religion, but it is actually several different things:
 
+* not something to take seriously.
 * it is something fun and damn interesting to write.
 * it is my attempt at seeing clearly my own convictions, bringing clarity to my ideas and beliefs about Life, the Universe and Everything.
 * it is an attempt, however naive, at formalising secular humanism, or at least part of it.
