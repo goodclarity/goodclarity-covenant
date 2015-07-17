@@ -10,9 +10,9 @@ For the Laws, then and there.
 For them, when and where.
 
 The Laws danced together, and they were Universe.
-And the Universe danced and became Light and became Stars.
-And the Universe became Aware and made of Lightning and Stars, and the Universe became Human and many other things.
-And Human looked and Human searched and Human understood and finally Human learn; and Human danced, for the Universe is dancing and they are dance.
+And the Universe danced and the Dance became Light and became Stars.
+And the Dance became Aware and made of Lightning and Stars, and the Dance became Human and many other things.
+And Human looked and Human searched and Human understood and finally Human learn; and Human danced, for the Universe is dancing and they are Dance.
 
 We dance.
 A sacrifice was made.
@@ -26,33 +26,53 @@ We dance, the stars died for us to be.
 
 
 
+Towards the Dance
+-----------------
+There is only one Dance.
+The orchestra of this Dance is called Universe.
+Knowing it in its full extent is impossible for us, because we are part of it.
+We are short whirls, cutting freedom for ourselves out of the turbulence that is our essence.
+We can ride along the flow or break against it and there is no right way other than the one that, through our turbulence, we choose.
+Either way, we disappear, dissolved in the ebb
+For we are one dance within the Dance and nothing more.
+But, most importantly, nothing less.
+
+
+
 The Arbitrary Integer Number of Guidelines
 ------------------------------------------
 
 *To Myself I say:*
 
 * I am free to reject this Covenant, in all or in part, now or in the future.
+(For I am free.)
 
 * Those who reject this Covenant shall suffer no consequences.
+(For I will respect the freedom of others to do what I do not like.)
 
 * I accept and acknowledge that even the ideas I hold dearest may be wrong.
+(For I am limited.)
 
 * I change my ideas when they are shown to be wrong.
 (If my ideas can be destroyed by truth, they must be.)
 
 * I actively seek the weak points of my own ideas.
+(My ego is my blindfold.)
 
 * I strive to understand my enemies: I will not judge them before I can see myself in them.
+(Because each dance starts and flows differently.)
 
 * I take full responsibility of my moral choices and my actions.
+(For I am free.)
 
 * I doubt the righteousness and goodness of my actions.
 (Good intentions are not enough.)
 
-* I will do good.
-(For my nature requires it.)
+* I will broaden my compassion.
+(For I am part of the Dance.)
 
 * I will study this Covenant.
+(For it contains good ideas, and if it does not, it must be changed.)
 
 *If against reason, if against evidence, I hereby declare my Faith in Humanity.*
 
@@ -213,9 +233,30 @@ Together with our need to understand the world around us, we end up projecting o
 
 Why are "humanlike agency" explanations so alluring?
 The key seems to be familiarity. We have a decent idea of how to deal with other humans.
-How can we control the wind? We don't know.
+How can we control the wind? We know not.
 But what we know, is how to befriend a human in charge of the wind.
-And, let's be honest: we like to feel special, we like to think that the very important guy in charge of the wind listens to us.
+And, let us be honest: we like to feel special, we like to think that the very important guy in charge of the wind listens to us.
+
+
+
+Towards Acceptance
+------------------
+
+The dance is a flow of harmony, of emotions and flesh and irregularities.
+So Luna and Gaia dance, they dance a language that neither can speak.
+Each error and each heartbeat a door to the depth and the unexpected.
+As humans dance in the mystery, so Gaia and Luna dance a future unknown, each move greater than the sum of two bodies.
+
+Time uncountable honed the errors to the same flow of the flesh, a dance was made whole, then two, then one.
+
+Those who seek control, are eaten by fear.
+Those who abandon control, dance.
+
+Luna knows, perfection is fear.
+Gaia knows, errors are flow. Why call them errors?
+
+
+
 
 
 
@@ -224,16 +265,15 @@ And, let's be honest: we like to feel special, we like to think that the very im
 TOWARDS MYSELF
 --------------
 
-I'm human. I'm not perfect. And it's ok. Really.
+I am human. I am not perfect. And it is ok. Really.
 I laugh about myself.
 I strive to see my flaws and do my best to correct them.
 
-I will hold my opinion on things I don't know.
+I will hold my opinion on things I do not know.
 
-I will not cover my head when witnessing for Compassionate Humanism, unless as strictly and minimally necessary to protect myself from cold.
+A covered head is not suitable for witnessing for the Covenant, unless as strictly and minimally necessary to protect myself from cold.
 
 I will study how my mind can be manipulated and succumb to biases.
-
 
 If I need to diminish someone I am doing it wrong
 
@@ -242,17 +282,14 @@ Which one prevails is my responsibility.
 
 We are utterly blind to what happens in our heads; it is hard to acknowledge this even in face of evidence
 
-
 Read travel, push myself out of my zone of comfort, let the acknowledgment of my ignorance become curiosity
 
 If something feels uncomfortable but is not dangerous, i should probably try it.
-
 
 When confronted with an inconsistent choice we make, our instinct is to rationalize the choice: we rarely
 even consider that yes, our choice could actually have been inconsistent or wrong.
 
 I am not my identity, I am not my ego.
-
 
 Learn to say "I am wrong" "fair enough", first and foremist to myself, then to others
 
@@ -365,54 +402,6 @@ The Arbitrary Integer Number of Optional Pledges of Transhuman Virtue
 
 
 
-EVEN MESSIER NOTES
-=====================================================================================
-
---> this stuff really needs to be cleaned up & sorted
-
-
-
-Towards Acceptance
-------------------
-
-Gaia and Luna dance together a dance of harmony and the future of their dance is written in the past, and this is sin.
-But dance heeds not of sin, for it only heeds of togetherness.
-
-Gaia does not know.
-Luna does not know.
-For if they knew, what would be the point of the dance?
-
-
-
-surrender to the dance, surrender to your partner's expression
-
-surrender to being human, surrender to
-
-Neither aches for power
-
-Gaia does not ache for control.
-Luna does not ache for control.
-For if they did, how 
-
-
-
-
-
-So how do I handle the fact that we can never be sure?
-How do we cope with our own unreliable mind?
-How do we navigate without knowing the current?
-Even when we become aware of a vicious current only sometimes we can fight it and correcting our judgement but often we can only accept that we won't come to our destination. And still this latter knowledge is powerful indeed.
-
-- Knowing about the current allows us to sometimes detect it and correct it.
-- Knowing that we'll make mistakes allows me to stay more open minded and take myself less seriously.
-- Use the errors of others to understand what MY own errors could be.
-
-- Change of attitude: Admitting to myself that I'm wrong is very hard and requires a lot of effort, introspection, honesty and integrity, but it's the main way to become a better human being and ultimately empowering and liberating.
-
-- We like simple answers. They lull us. But reality is complex, dirty and nuanced. This is its beauty. I embrace it.
-
-
-
 
 
 
@@ -429,6 +418,20 @@ Accept that I am very easily manipulated by myself and by my social context.
 
 *** AVAILABILITY HEURISTICS!? All I see is all that Exists
 *** halo effect
+
+So how do I handle the fact that we can never be sure?
+How do we cope with our own unreliable mind?
+How do we navigate without knowing the current?
+Even when we become aware of a vicious current only sometimes we can fight it and correcting our judgement but often we can only accept that we won't come to our destination. And still this latter knowledge is powerful indeed.
+
+- Knowing about the current allows us to sometimes detect it and correct it.
+- Knowing that we'll make mistakes allows me to stay more open minded and take myself less seriously.
+- Use the errors of others to understand what MY own errors could be.
+
+- Change of attitude: Admitting to myself that I'm wrong is very hard and requires a lot of effort, introspection, honesty and integrity, but it's the main way to become a better human being and ultimately empowering and liberating.
+
+- We like simple answers. They lull us. But reality is complex, dirty and nuanced. This is its beauty. I embrace it.
+
 
 
 
