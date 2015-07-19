@@ -1,6 +1,7 @@
 
 Goodclarity Covenant
 --------------------
+_A semi-serious philosophical exercise._
 
 I guess you can think of this as the Holy text of the Goodclaritan religion, but it is actually several different things:
 
